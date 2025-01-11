@@ -1,4 +1,4 @@
 # Wripo76
 
 today saturday
-sunday holiday
+sunday holidays
